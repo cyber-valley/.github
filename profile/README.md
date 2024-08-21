@@ -1,6 +1,3 @@
-An autonomous community in the northern mountains of [Bali](https://en.wikipedia.org/wiki/Bali), located in the [Batuka](https://id.wikipedia.org/wiki/Cagar_Alam_Batukau) Natural Reserve
-
-
 ## Why
 
 We live in an amazing time when people, tech, and nature can work together for the betterment of our planet and civilization.
