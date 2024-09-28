@@ -18,7 +18,7 @@ So we have decided to reclaim responsibility for our future to create a happier,
 
 We, [master](https://cyb.ai/@master) and [joy](https://cyb.ai/@joy), began this project in 2021 by acquiring land in one of the most beautiful and pristine locations in Bali
 
-Since then we have consolidated ~38 ha of land at the foot of [Sanghyang volcano](https://maps.app.goo.gl/CdD8vRYHrWkpTGYj6)
+Since then we have consolidated ~39 ha of land at the foot of [Sanghyang volcano](https://maps.app.goo.gl/CdD8vRYHrWkpTGYj6)
 
 We built the first completely offgrid home in the region and moved here in July 2023.
 
