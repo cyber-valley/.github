@@ -13,5 +13,3 @@ We have the ability to harness clean energy. We want to eat nutrient rich food. 
 There is still so much that the greedy and selfish civilization has taken. All we do, must add to the planet, not exploit it.
 
 So we have decided to reclaim responsibility for our future to create a happier, longer, and more fulfilling life.
-
-Previous effort have been suspended du to personal risks. The project will go different dirrection
